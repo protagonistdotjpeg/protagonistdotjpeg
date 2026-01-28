@@ -7,7 +7,7 @@
 > 
 > dni pro/darkship and basic dni
 >
-> PLSSS never be afraid to int; i don't bite + i'm very cool trust me <3 ik the few ppl stalking my profile would love to hear this /silly :3
+> PLSSS never be afraid to int; i don't bite + i'm very cool trust me <3 if i follow u i rlly rlly fw you and i wanna be friends but i am the shyest person ever and will cry before i ever try to interact
 
 <p align="center">
 <img width="1175" height="1195" alt="image" src="https://github.com/user-attachments/assets/b3efbd9c-900c-4599-a655-c39eaa479336" />
