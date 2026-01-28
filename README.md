@@ -1,12 +1,14 @@
 <p align="center">
 <img width="240" height="19" alt="image" src="https://github.com/user-attachments/assets/ee4d2543-7d8b-407b-a8ba-46dbd2215903" />
 
-
 > hi i'm clair
 > 
 > remaking. again. i wanna try a new layout
 > 
->dni pro/darkship and basic dni
+> dni pro/darkship and basic dni
+>
+> PLSSS never be afraid to int; i don't bite + i'm very cool trust me <3
+
 <p align="center">
 <img width="1175" height="1195" alt="image" src="https://github.com/user-attachments/assets/b3efbd9c-900c-4599-a655-c39eaa479336" />
 
