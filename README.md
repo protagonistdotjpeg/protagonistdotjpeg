@@ -5,7 +5,7 @@
 > 
 > remaking. again. i wanna try a new layout
 > 
-> dni pro/darkship and basic dni
+> dni pro/darkship and basic dni. iwec 14 and under (i am 18 years old)
 >
 > PLSSS never be afraid to int; i don't bite + i'm very cool trust me <3 if i follow u i rlly rlly fw you and i wanna be friends but i am the shyest person ever and will cry before i ever try to initiate conversation
 
