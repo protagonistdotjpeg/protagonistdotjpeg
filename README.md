@@ -1,7 +1,7 @@
 <p align="center">
 <img width="240" height="19" alt="image" src="https://github.com/user-attachments/assets/ee4d2543-7d8b-407b-a8ba-46dbd2215903" />
 
-> hi i'm clair
+> hi i'm claire
 > 
 > remaking. again. i wanna try a new layout
 > 
