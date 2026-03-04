@@ -3,11 +3,13 @@
 
 > hi i'm claire
 > 
-> remaking. again. i wanna try a new layout
+> five. hundred. remakes.
 > 
-> dni pro/darkship (you will be hidden on sight; please don't make your harmful coping mechanism public information and certainly don't show it off to kids) and basic dni. iwec 14 and under (i am 18 years old). comship iwec since uhh i really don't know what it actually means but i've only seen basic decent stuff under comship so i'm hesitant about it
+> dni pro/darkship (you will be hidden on sight) and basic dni. iwec 14 and under (i am unc)
 >
-> this is getting an update with some vital info to know; i am severely autistic (very far down on the autism spectrum). i am seeing a therapist to help me not be so socially awkward and help treat my social anxiety, but this part about me will never ever go away no matter how hard i try. if ppl wanna int i ask you do so first (at least in the first few interactions) because i will end up having a panic attack and shutting off my computer (if you've tried getting close before, you've definitely seen it, and i'm so very sorry about it :( )
+> i'm growing into a more confident person now (though i'll still have my shy moments). i am also employed but i am typically on around 18:00 EST (it's when i get home)
+>
+> if i follow u i think ur cool ok,,,,,,
 
 <p align="center">
 <img width="240" height="8" alt="image" src="https://github.com/user-attachments/assets/65a8ca45-7851-4a60-949a-a6972d176bed" />
