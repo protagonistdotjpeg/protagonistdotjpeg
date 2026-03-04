@@ -3,9 +3,9 @@
 
 > hi i'm claire
 > 
-> five. hundred. remakes.
+> i am a system (osdd). if i am not fronting it's not worth interacting (unless github is linked in this account)
 > 
-> dni pro/darkship (you will be hidden on sight) and basic dni. iwec 14 and under (i am unc)
+> dni pro/darkship (you will be hidden on sight) and basic dni. iwec 14 and under (i am 18 years old)
 >
 > i'm growing into a more confident person now (though i'll still have my shy moments). i am also employed but i am typically on around 18:00 EST (it's when i get home)
 >
