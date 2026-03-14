@@ -5,7 +5,7 @@
 > 
 > i am a system (osdd). if i am not fronting it's not worth interacting (unless github is linked in this account)
 > 
-> dni pro/darkship, ranfren, and basic dni (forsaken and homestuck are on thin ice). iwec 14 and under (i am 18 years old). i don't like being bothered much when i'm already with friends but if ur in my following it's ok 👍
+> dni pro/darkship, ranfren, cookie run (esp shadow milk fans), and basic dni (forsaken and homestuck are on thin ice). iwec 14 and under (i am 18 years old). i don't like being bothered much when i'm already with friends but if ur in my following it's ok 👍
 >
 > i am super introverted and stuff and i will rarely ever int first so pls don't expect much from me 😟. i am also employed but i am typically on around 18:00 EST (it's when i get home)
 >
