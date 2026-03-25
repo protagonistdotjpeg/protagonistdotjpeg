@@ -5,7 +5,19 @@
 > 
 > **i am a system (osdd)**. if i am not fronting it's not worth interacting (unless github is linked in this account). i'm often frontstuck though so you're probably gonna rarely see anyone other than me (awful ik..)
 > 
-> **dni pro/darkship, ranfren, danganronpa, okegom, hh/hb, forsaken, homestuck, tfc, cookie run (esp shadow milk fans), and basic dni**. iwec 14 and under (i am 18 years old). i don't like being bothered much when i'm already with friends but if ur in my following it's ok 👍
+> *dni:*
+> - **pro/darkship**
+> - **ranfren**
+> - **danganronpa**
+> - **okegom**
+> - **hh/hb**
+> - **forsaken**
+> - **homestuck**
+> - **tfc**
+> - **cookie run (esp shadow milk fans)**
+> - **basic dni**.
+> 
+> iwec 14 and under (i am 18 years old). i don't like being bothered much when i'm already with friends but if ur in my following it's ok 👍
 >
 > i'm invested in **project moon games, monolith soft games, dandy's world, and fpe**. if u like this stuff (and aren't freaking weirddd) hmu yo!
 >
