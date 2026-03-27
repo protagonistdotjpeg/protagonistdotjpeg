@@ -21,9 +21,9 @@
 > 
 > ***iwec 14 and under (i am 18 years old)***. i don't like being bothered much when i'm already with friends but if ur in my following it's ok 👍
 >
-> i'm invested in **project moon games, monolith soft games, dandy's world, and fpe**. if u like this stuff (and aren't freaking weirddd) hmu yo!
+> i'm invested in **project moon games, raggedy ann and andy, monolith soft games, dandy's world, and fpe**!
 >
-> i am super introverted and stuff and i will rarely ever int first so pls don't expect much from me 😟. i am also employed but i am typically on around 18:00 EST (it's when i get home)
+> i am super introverted and stuff and i will rarely ever int so pls don't expect much from me 😟. i am also employed but i am typically on around 18:00 EST (it's when i get home)
 
 <p align="center">
 <img width="240" height="8" alt="image" src="https://github.com/user-attachments/assets/65a8ca45-7851-4a60-949a-a6972d176bed" />
