@@ -5,7 +5,7 @@
 >
 > hi i'm claire
 > 
-> **i am a system (osdd)**. if i am not fronting it's not worth interacting (unless github is linked in this account). i'm often frontstuck though so you're probably gonna rarely see anyone other than me (awful ik..)
+> **i am a system (osdd)**. if i am not fronting it's not worth interacting (unless already friends). i'm often frontstuck though so you're probably gonna rarely see anyone other than me (awful ik..)
 > 
 > *dni:*
 > - **pro/darkship**
