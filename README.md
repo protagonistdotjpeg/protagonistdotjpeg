@@ -1,6 +1,8 @@
 <p align="center">
 <img width="240" height="19" alt="image" src="https://github.com/user-attachments/assets/ee4d2543-7d8b-407b-a8ba-46dbd2215903" />
 
+> **THIS IS GONNA BE REMADE VERY SOON! CRAZY IK! IT'S BEEN SO LONG!!!**
+>
 > hi i'm claire
 > 
 > **i am a system (osdd)**. if i am not fronting it's not worth interacting (unless github is linked in this account). i'm often frontstuck though so you're probably gonna rarely see anyone other than me (awful ik..)
