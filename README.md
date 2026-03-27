@@ -22,8 +22,6 @@
 > i'm invested in **project moon games, monolith soft games, dandy's world, and fpe**. if u like this stuff (and aren't freaking weirddd) hmu yo!
 >
 > i am super introverted and stuff and i will rarely ever int first so pls don't expect much from me 😟. i am also employed but i am typically on around 18:00 EST (it's when i get home)
->
-> if i follow u i think ur so cool ok,,,,,,
 
 <p align="center">
 <img width="240" height="8" alt="image" src="https://github.com/user-attachments/assets/65a8ca45-7851-4a60-949a-a6972d176bed" />
