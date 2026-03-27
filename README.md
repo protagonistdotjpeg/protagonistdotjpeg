@@ -17,7 +17,7 @@
 > - **cookie run (esp shadow milk fans)**
 > - **basic dni**.
 > 
-> iwec 14 and under (i am 18 years old). i don't like being bothered much when i'm already with friends but if ur in my following it's ok 👍
+> ***iwec 14 and under (i am 18 years old)***. i don't like being bothered much when i'm already with friends but if ur in my following it's ok 👍
 >
 > i'm invested in **project moon games, monolith soft games, dandy's world, and fpe**. if u like this stuff (and aren't freaking weirddd) hmu yo!
 >
